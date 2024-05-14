@@ -1,1 +1,1 @@
-# gambito puto el que lo lea
+# gambito
